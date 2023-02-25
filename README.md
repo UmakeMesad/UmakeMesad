@@ -1,5 +1,4 @@
 - 👋 Hi, I’m @UmakeMesad
-- 👀 I’m interested in gay boy Quan
 - 🌱 I’m currently learning how to sleep 20 hours per day
 - 💞️ I’m looking to collaborate on sleep
 - 📫 How to reach me ...
